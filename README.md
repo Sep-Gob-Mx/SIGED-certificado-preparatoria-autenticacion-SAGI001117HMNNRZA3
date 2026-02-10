@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SAGI001117HMNNRZA3
+SAGI001117HMNNRZA3
